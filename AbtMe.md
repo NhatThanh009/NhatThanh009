@@ -2,7 +2,7 @@
 - 👀 I’m interested in chess & coding
 - 🌱 I’m currently learning data science
 - 💞️ I’m looking for a long-term collaborate
-- 📫 How to reach me:
+- 📫 How to reach me: linkedin.com/in/nhatthanh009
 - 😄 Pronouns: He
 - ⚡ Fun fact: laugh easily with silly things
 
